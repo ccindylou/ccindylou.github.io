@@ -3,5 +3,5 @@ theme: jekyll-theme-cayman
 ---
 # Omniscient Readers Viewpoint
 
-![Omiscient ReadersViewpoint](https://images.app.goo.gl/NpPVUa7kew1UjzU49)
+![Omiscient Readers Viewpoint](https://images.app.goo.gl/NpPVUa7kew1UjzU49)
 
