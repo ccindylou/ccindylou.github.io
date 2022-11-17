@@ -9,4 +9,4 @@ Main Characters
 
 ![Omiscient ReadersViewpoint](https://images.app.goo.gl/NpPVUa7kew1UjzU49)
 
-theme: jekyll-theme-midnight
+
