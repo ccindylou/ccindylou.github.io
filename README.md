@@ -37,4 +37,4 @@
 
 
 Either link can be clicked, it is directed to the Twitter accound of the official artist of the novel and webtoon of the Omniscient Readers Viewpoint.
-[`Twitter`](https://twitter.com/1L9l2Aa8UCL0IGJ?s=20&t=T35hEQN_OgbhShP7tYVvfQ) [`Twitter`](https://twitter.com/BLACKBOX9158?s=20&t=T35hEQN_OgbhShP7tYVvfQ)
+[`Twitter (1)`](https://twitter.com/1L9l2Aa8UCL0IGJ?s=20&t=T35hEQN_OgbhShP7tYVvfQ) [`Twitter (2)`](https://twitter.com/BLACKBOX9158?s=20&t=T35hEQN_OgbhShP7tYVvfQ)
