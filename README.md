@@ -1,12 +1,16 @@
-# Welcome to ccindylou.github.io
+# ccindylou
 ---
 ## [Omniscient Readers Viewpoint](https://www.webtoons.com/en/action/omniscient-reader/list?title_no=2154&page=1)
+
+
+
 ![Omniscient Readers Viewpoint](https://user-images.githubusercontent.com/118245497/202373289-dc23f75d-3faa-4636-a6a1-a24b1b0042b8.png)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/8OHzcTtoLo4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 **Summary of the story**
-> Kim Dokja was an average office worker whose sole interest was reading his favorite web novel 'Three Ways to Survive the Apocalypse.' But when the novel suddenly becomes reality, he is the only person who knows how the world will end. Armed with this realization, Dokja uses his understanding to change the course of the story, and the world, as he knows it.
+
+> Kim Dokja was an average office worker whose sole interest was reading his favorite web novel 'Three Ways to Survive the Apocalypse.' But when the novel suddenly becomes reality, he is the only person who knows how the world will end. Armed with this realization, Dokja uses his understanding to change the course of the story, and the world, as he knows it. Now, Dokja will go on a journey to change the course of the story and save humankind once and for all.
 
 **Characters**
 - [Kim Dokja](https://omniscient-readers-viewpoint.fandom.com/wiki/Kim_Dokja#:~:text=Kim%20Dokja%20is%20the%20main,%2C%20Yoo%20Joonghyuk's%20sponsor.)
@@ -28,13 +32,6 @@
 - [Lee Jihye](https://omniscient-readers-viewpoint.fandom.com/wiki/Lee_Jihye?so=search)
    - Lee Jihye is an ex-high school student and a current member of <Kim Dokja's Company>. She was originally a character in Ways of Survival, fighting under Yoo Joonghyuk's leadership.
    
-
-
-   
-
-
-
-
 
 Either link can be clicked, it is directed to the Twitter accound of the official artist of the novel and webtoon of the Omniscient Readers Viewpoint.
 [`Twitter (1)`](https://twitter.com/1L9l2Aa8UCL0IGJ?s=20&t=T35hEQN_OgbhShP7tYVvfQ) [`Twitter (2)`](https://twitter.com/BLACKBOX9158?s=20&t=T35hEQN_OgbhShP7tYVvfQ)
