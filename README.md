@@ -37,5 +37,5 @@ Either link can be clicked, it is directed to the Twitter accound of the officia
 [`Twitter (1)`](https://twitter.com/1L9l2Aa8UCL0IGJ?s=20&t=T35hEQN_OgbhShP7tYVvfQ) [`Twitter (2)`](https://twitter.com/BLACKBOX9158?s=20&t=T35hEQN_OgbhShP7tYVvfQ)
 
 
-![Sad Dance]([https://tenor.com/view/orv-omniscient-readers-viewpoint-kim-dokja-yoo-joonghyuk-yjh-gif-26497459](https://images.app.goo.gl/3uDfpwNrame9fFsB9)
+
 
