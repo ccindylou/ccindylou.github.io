@@ -31,11 +31,14 @@
    - Yoo Sangah is one of Kim Dokja's colleagues in Minosoft back when the Star Stream hasn't interwined in their universe and current party members in the Kim Dokja Company. 
 - [Lee Jihye](https://omniscient-readers-viewpoint.fandom.com/wiki/Lee_Jihye?so=search)
    - Lee Jihye is an ex-high school student and a current member of <Kim Dokja's Company>. She was originally a character in Ways of Survival, fighting under Yoo Joonghyuk's leadership.
-   
+
+*Kimcom_Kim Dokja's Company*
+
+![Kimcom](https://static.wikia.nocookie.net/shipping/images/8/88/KimCom_fan_art_by_miyabau.png/revision/latest/scale-to-width-down/250?cb=20220521161458)  ![Kimcom](https://static.wikia.nocookie.net/shipping/images/6/67/KimCom_fan_art_by_heng_heheng.png/revision/latest/scale-to-width-down/250?cb=20220521165518)    ![Kimcom](https://preview.redd.it/kimcom-after-apocalypse-artist-v0-9kbokgrut5v91.jpg?width=640&crop=smart&auto=webp&s=1cc7732646769cd112057b0eb8728de25b31cacd)
 
 Either link can be clicked, it is directed to the Twitter accound of the official artist of the novel and webtoon of the Omniscient Readers Viewpoint.
 [`Twitter (1)`](https://twitter.com/1L9l2Aa8UCL0IGJ?s=20&t=T35hEQN_OgbhShP7tYVvfQ) [`Twitter (2)`](https://twitter.com/BLACKBOX9158?s=20&t=T35hEQN_OgbhShP7tYVvfQ)
 
-
+![Dance](https://media.tenor.com/Nlb5datcgZsAAAAC/orv-omniscient-readers-viewpoint.gif)
 
 
