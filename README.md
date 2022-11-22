@@ -6,7 +6,7 @@
 
 ![Omniscient Readers Viewpoint](https://user-images.githubusercontent.com/118245497/202373289-dc23f75d-3faa-4636-a6a1-a24b1b0042b8.png)
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8OHzcTtoLo4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/8OHzcTtoLo4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 **Summary of the story**
 
