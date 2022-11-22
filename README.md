@@ -41,9 +41,14 @@ Shin Yoosung is one of Kim Dokja's and Yoo Joonghyuk's party members, and Kim Do
 
 - [Lee Gilyoung](https://omniscient-readers-viewpoint.fandom.com/wiki/Lee_Gilyoung?so=search)
 
-![Lee Gilyoung](
-   - Lee Gilyoung is a young boy who is a member of Kim Dokja's party. He had the insects that allowed some of the party to survive Main Scenario. Furthermore, he is not a character from the original novel.
+![Lee Gilyoung](https://i.pinimg.com/236x/6f/15/52/6f1552345e86a5904d9d19dae383d202.jpg)
+
+Lee Gilyoung is a young boy who is a member of Kim Dokja's party. He had the insects that allowed some of the party to survive Main Scenario. Furthermore, he is not a character from the original novel.
+
 - [Jung Heewon](https://omniscient-readers-viewpoint.fandom.com/wiki/Jung_Heewon?so=search)
+
+![Jung Heewon](https://64.media.tumblr.com/c9f0df4d58fb1036be8e97aae0493011/10b1e62bdd925c49-85/s2048x3072_c0,8668,100000,51605/c37da9388d8157473e2d453ec22af51fd21a0123.png)
+
    - Jung Heewon is a member of Kim Dokja's party. She was part of the marginalized group from Geumho station. She becomes one of the most vital party members, sometimes referred to as the "sword" of the group.
 - [Lee Hyunsung](https://omniscient-readers-viewpoint.fandom.com/wiki/Lee_Hyunsung?so=search)   
    - Lee Hyunsung is a former army lieutenant and a current member of Kim Dokja's party. He was originally a character in Ways of Survival, fighting under Yoo Joonghyuk's leadership.
