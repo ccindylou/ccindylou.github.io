@@ -47,9 +47,10 @@ Lee Gilyoung is a young boy who is a member of Kim Dokja's party. He had the ins
 
 - [Jung Heewon](https://omniscient-readers-viewpoint.fandom.com/wiki/Jung_Heewon?so=search)
 
-![Jung Heewon](https://64.media.tumblr.com/c9f0df4d58fb1036be8e97aae0493011/10b1e62bdd925c49-85/s2048x3072_c0,8668,100000,51605/c37da9388d8157473e2d453ec22af51fd21a0123.png)
+![Jung Heewon](https://pbs.twimg.com/media/Ew7b-vHVIAEUAb5?format=jpg&name=small)
 
-   - Jung Heewon is a member of Kim Dokja's party. She was part of the marginalized group from Geumho station. She becomes one of the most vital party members, sometimes referred to as the "sword" of the group.
+Jung Heewon is a member of Kim Dokja's party. She was part of the marginalized group from Geumho station. She becomes one of the most vital party members, sometimes referred to as the "sword" of the group.
+                                                                       
 - [Lee Hyunsung](https://omniscient-readers-viewpoint.fandom.com/wiki/Lee_Hyunsung?so=search)   
    - Lee Hyunsung is a former army lieutenant and a current member of Kim Dokja's party. He was originally a character in Ways of Survival, fighting under Yoo Joonghyuk's leadership.
 - [Yoo Sangah](https://omniscient-readers-viewpoint.fandom.com/wiki/Yoo_Sangah?so=search#articleComments)
