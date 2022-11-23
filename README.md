@@ -58,11 +58,15 @@ Jung Heewon is a member of Kim Dokja's party. She was part of the marginalized g
                                                                        
 - [Lee Hyunsung](https://omniscient-readers-viewpoint.fandom.com/wiki/Lee_Hyunsung?so=search)   
 
-![Lee Hyunsung](https://i.pinimg.com/236x/04/6b/e4/046be43cc34134c22e9cf4b4a921c150.jpg)  ![Lee Hyunsung]
+![Lee Hyunsung](https://i.pinimg.com/236x/04/6b/e4/046be43cc34134c22e9cf4b4a921c150.jpg)  ![Lee Hyunsung](https://i.pinimg.com/564x/11/37/19/11371995eaaa4fbb51da07348422d0fd.jpg)
+
 
 Lee Hyunsung is a former army lieutenant and a current member of Kim Dokja's party. He was originally a character in Ways of Survival, fighting under Yoo Joonghyuk's leadership.
 
 - [Yoo Sangah](https://omniscient-readers-viewpoint.fandom.com/wiki/Yoo_Sangah?so=search#articleComments)
+     
+![Yoo Sangah](https://i.pinimg.com/564x/b4/ad/a3/b4ada3ffd57eb7a1371136a26c49de3e.jpg) 1[
+     
 - Yoo Sangah is one of Kim Dokja's colleagues in Minosoft back when the Star Stream hasn't interwined in their universe and current party members in the Kim Dokja Company. 
 - [Lee Jihye](https://omniscient-readers-viewpoint.fandom.com/wiki/Lee_Jihye?so=search)
 - Lee Jihye is an ex-high school student and a current member of <Kim Dokja's Company>. She was originally a character in Ways of Survival, fighting under Yoo Joonghyuk's leadership.
