@@ -6,7 +6,7 @@ A fanpage about my favorite shonnen or action/fantasy webtoon and novel.
 
 
 
-![Omniscient Readers Viewpoint](https://user-images.githubusercontent.com/118245497/202373289-dc23f75d-3faa-4636-a6a1-a24b1b0042b8.png)
+![Omniscient Readers Viewpoint](https://i.pinimg.com/564x/f0/76/d8/f076d8064c17a69f81b2d054c14e6252.jpg)
 
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/8OHzcTtoLo4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe><center>
 
@@ -52,7 +52,10 @@ Lee Gilyoung is a young boy who is a member of Kim Dokja's party. He had the ins
 Jung Heewon is a member of Kim Dokja's party. She was part of the marginalized group from Geumho station. She becomes one of the most vital party members, sometimes referred to as the "sword" of the group.
                                                                        
 - [Lee Hyunsung](https://omniscient-readers-viewpoint.fandom.com/wiki/Lee_Hyunsung?so=search)   
-   - Lee Hyunsung is a former army lieutenant and a current member of Kim Dokja's party. He was originally a character in Ways of Survival, fighting under Yoo Joonghyuk's leadership.
+
+![Lee Hyunsung](https://i.pinimg.com/236x/04/6b/e4/046be43cc34134c22e9cf4b4a921c150.jpg)  ![Lee Hyunsung]
+
+Lee Hyunsung is a former army lieutenant and a current member of Kim Dokja's party. He was originally a character in Ways of Survival, fighting under Yoo Joonghyuk's leadership.
 - [Yoo Sangah](https://omniscient-readers-viewpoint.fandom.com/wiki/Yoo_Sangah?so=search#articleComments)
    - Yoo Sangah is one of Kim Dokja's colleagues in Minosoft back when the Star Stream hasn't interwined in their universe and current party members in the Kim Dokja Company. 
 - [Lee Jihye](https://omniscient-readers-viewpoint.fandom.com/wiki/Lee_Jihye?so=search)
