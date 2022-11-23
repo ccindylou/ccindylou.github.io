@@ -15,6 +15,7 @@ A fanpage about my favorite shonnen or action/fantasy webtoon and novel.
 > Kim Dokja was an average office worker whose sole interest was reading his favorite web novel 'Three Ways to Survive the Apocalypse.' But when the novel suddenly becomes reality, he is the only person who knows how the world will end. Armed with this realization, Dokja uses his understanding to change the course of the story, and the world, as he knows it. Now, Dokja will go on a journey to change the course of the story and save humankind once and for all.
 
 ### **Characters**
+
 - [Kim Dokja](https://omniscient-readers-viewpoint.fandom.com/wiki/Kim_Dokja#:~:text=Kim%20Dokja%20is%20the%20main,%2C%20Yoo%20Joonghyuk's%20sponsor.)
 
 ![Kim Dokja](https://preview.redd.it/cgszqb3lcq781.jpg?auto=webp&s=022d5690fdf1894bba8d5f2c11a1d6fee280ec6e)
@@ -56,25 +57,33 @@ Jung Heewon is a member of Kim Dokja's party. She was part of the marginalized g
 ![Lee Hyunsung](https://i.pinimg.com/236x/04/6b/e4/046be43cc34134c22e9cf4b4a921c150.jpg)  ![Lee Hyunsung]
 
 Lee Hyunsung is a former army lieutenant and a current member of Kim Dokja's party. He was originally a character in Ways of Survival, fighting under Yoo Joonghyuk's leadership.
+
 - [Yoo Sangah](https://omniscient-readers-viewpoint.fandom.com/wiki/Yoo_Sangah?so=search#articleComments)
-   - Yoo Sangah is one of Kim Dokja's colleagues in Minosoft back when the Star Stream hasn't interwined in their universe and current party members in the Kim Dokja Company. 
+- Yoo Sangah is one of Kim Dokja's colleagues in Minosoft back when the Star Stream hasn't interwined in their universe and current party members in the Kim Dokja Company. 
 - [Lee Jihye](https://omniscient-readers-viewpoint.fandom.com/wiki/Lee_Jihye?so=search)
-   - Lee Jihye is an ex-high school student and a current member of <Kim Dokja's Company>. She was originally a character in Ways of Survival, fighting under Yoo Joonghyuk's leadership.
+- Lee Jihye is an ex-high school student and a current member of <Kim Dokja's Company>. She was originally a character in Ways of Survival, fighting under Yoo Joonghyuk's leadership.
 
 *Kimcom_Kim Dokja's Company*
 
-![Kimcom](https://static.wikia.nocookie.net/shipping/images/8/88/KimCom_fan_art_by_miyabau.png/revision/latest/scale-to-width-down/250?cb=20220521161458)  ![Kimcom](https://static.wikia.nocookie.net/shipping/images/6/67/KimCom_fan_art_by_heng_heheng.png/revision/latest/scale-to-width-down/250?cb=20220521165518)    ![Kimcom](https://preview.redd.it/kimcom-after-apocalypse-artist-v0-9kbokgrut5v91.jpg?width=640&crop=smart&auto=webp&s=1cc7732646769cd112057b0eb8728de25b31cacd)
+![Kimcom](https://static.wikia.nocookie.net/shipping/images/8/88/KimCom_fan_art_by_miyabau.png/revision/latest/scale-to-width-down/250?cb=20220521161458)
+![Kimcom](https://static.wikia.nocookie.net/shipping/images/6/67/KimCom_fan_art_by_heng_heheng.png/revision/latest/scale-to-width-down/250?cb=20220521165518)
+![Kimcom](https://preview.redd.it/kimcom-after-apocalypse-artist-v0-9kbokgrut5v91.jpg?width=640&crop=smart&auto=webp&s=1cc7732646769cd112057b0eb8728de25b31cacd)
 
 Songs that can relate to the plot:
+  
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3QF5RsWzK1lCvf2o2cY65P?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+  
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/1SKPmfSYaPsETbRHaiA18G?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+  
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/1ei3hzQmrgealgRKFxIcWn?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+  
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/7FKkswFflI5Txc3Y4gH0IB?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+  
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/0KmgJyW4GDgonqsoyx0CZ3?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
-
 Either link can be clicked, it is directed to the Twitter accound of the official artist of the novel and webtoon of the Omniscient Readers Viewpoint.
-[`Twitter (1)`](https://twitter.com/1L9l2Aa8UCL0IGJ?s=20&t=T35hEQN_OgbhShP7tYVvfQ) [`Twitter (2)`](https://twitter.com/BLACKBOX9158?s=20&t=T35hEQN_OgbhShP7tYVvfQ)
+[`Twitter (1)`](https://twitter.com/1L9l2Aa8UCL0IGJ?s=20&t=T35hEQN_OgbhShP7tYVvfQ) 
+[`Twitter (2)`](https://twitter.com/BLACKBOX9158?s=20&t=T35hEQN_OgbhShP7tYVvfQ)
 
 ![Dance](https://media.tenor.com/Nlb5datcgZsAAAAC/orv-omniscient-readers-viewpoint.gif)
 
