@@ -14,7 +14,7 @@ A fanpage about my favorite shonnen or action/fantasy webtoon and novel.
 </center>
   
 
-### Summary of the story
+### **Summary of the story**
 
 > Kim Dokja was an average office worker whose sole interest was reading his favorite web novel 'Three Ways to Survive the Apocalypse.' But when the novel suddenly becomes reality, he is the only person who knows how the world will end. Armed with this realization, Dokja uses his understanding to change the course of the story, and the world, as he knows it. Now, Dokja will go on a journey to change the course of the story and save humankind once and for all.
 
