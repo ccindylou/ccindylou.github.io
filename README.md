@@ -7,7 +7,6 @@ A fanpage about my favorite shonnen or action/fantasy webtoon and novel.
 
 
 
-![Omniscient Readers Viewpoint](https://i.pinimg.com/564x/f0/76/d8/f076d8064c17a69f81b2d054c14e6252.jpg)
 <img scr width="900" src="https://i.pinimg.com/564x/f0/76/d8/f076d8064c17a69f81b2d054c14e6252.jpg">
 
 <center>
